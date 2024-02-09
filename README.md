@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Beso12K you can call me Adek
+- 👀 I’m interested in Game development
+- 🌱 I’m currently learning Pyhton
+- 📫 How to reach me? Go to my house
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like dogs
